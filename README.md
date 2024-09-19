@@ -9,3 +9,6 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 Você pode entrar em contato comigo 📫00001106895836sp@al.educacao.sp.gov.br
 
 @alurastartestudante
+
+
+![](https://media1.tenor.com/m/B2eW8gNUFTEAAAAd/okay-sarcastic.gif)
